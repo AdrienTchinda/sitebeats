@@ -75,7 +75,17 @@ Oldschool :
 https://www.youtube.com/watch?v=5bsi2_pK7YY
 https://www.youtube.com/watch?v=5dtBWKYnDYg
 
+Reggaeton:
+https://www.youtube.com/watch?v=dG7Kzh9vGFo
+
 PROCHAINES SALVES:
 Melancolique:
 https://www.youtube.com/watch?v=wZw7ZDw6jGY
-https://www.youtube.com/watch?v=D0WKrjLOD9w
+https://www.youtube.com/watch?v=
+
+Trap : 
+https://www.youtube.com/watch?v=1lTOqQeAHi4
+
+Planant:
+https://www.youtube.com/watch?v=WUoXEXzOsNo
+
