@@ -32,14 +32,13 @@ Les envoyer par salve
 Mettre Première Salve par exemple
 
 
+SALVE 1:
 Melancolique : 
 https://www.youtube.com/watch?v=tF3RY_3GONI
 https://www.youtube.com/watch?v=NYvt_c78fPU
 https://www.youtube.com/watch?v=t1yeIhNY5FY
-https://www.youtube.com/watch?v=wZw7ZDw6jGY
 https://www.youtube.com/watch?v=oFkES17A-Qw
 https://www.youtube.com/watch?v=XwnVxnwUs7o
-https://www.youtube.com/watch?v=D0WKrjLOD9w
 https://www.youtube.com/watch?v=64D-2p-SG_Q
 https://www.youtube.com/watch?v=wxEDVdEmIFQ
 
@@ -75,3 +74,8 @@ https://www.youtube.com/watch?v=Q-kBgWsw9VQ
 Oldschool :
 https://www.youtube.com/watch?v=5bsi2_pK7YY
 https://www.youtube.com/watch?v=5dtBWKYnDYg
+
+PROCHAINES SALVES:
+Melancolique:
+https://www.youtube.com/watch?v=wZw7ZDw6jGY
+https://www.youtube.com/watch?v=D0WKrjLOD9w
